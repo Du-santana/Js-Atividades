@@ -1,1 +1,1 @@
-Alunos : Eduardo Santana | Heriston Davi | Pedro Judah 
+Alunos : Eduardo Santana | Heriston Davi | Pedro Judah | Wamerson Freitas
